@@ -1,0 +1,1 @@
+This is an easy French Toast recipe that won't take very long, but will be delicious 
